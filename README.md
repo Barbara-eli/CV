@@ -1,9 +1,11 @@
 # Presentation:
+
 ### _Barbara Elisabetta_
-**Bon relationnel:** disponibilité, adaptabilité, empathie et diplomatie 
-**Organisation :** gestion du temps, respect des délais, priorisation, capacité à prendre des décisions
+
+**Bon relationnel:** disponibilité, adaptabilité, empathie et diplomatie         
+**Organisation :** gestion du temps, respect des délais, priorisation, capacité à prendre des décisions           
 **Créativité**  
-**Travail en équipe**
+**Travail en équipe**        
 **Langues:**  
 * **Italien:** langue maternelle
 * **Anglais:** bilingue
