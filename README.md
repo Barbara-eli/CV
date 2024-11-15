@@ -1,6 +1,7 @@
 # Presentation:
 
 ### _Barbara Elisabetta_
+![Barbara](immagini/barbara.jpeg)
 
 **Bon relationnel:** disponibilité, adaptabilité, empathie et diplomatie         
 **Organisation :** gestion du temps, respect des délais, priorisation, capacité à prendre des décisions           
