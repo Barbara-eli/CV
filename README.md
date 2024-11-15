@@ -15,14 +15,26 @@
 
 # Formation:
 _2003-2008: Lycée, Bac Littéraire_ 
+
+
 _2008-2013: Académie des Beaux-Arts, Bac+3 en **Scénographie**_
+
+
 _2013-2014: IED: Insitut Européen de design: Diplôme en **Décoration de l'Interieur**_
+
+
 _2020-2021- Comptalia: Bac+2 en **Assistante RH TP-01284**_
 
 # Expérience Professionnelle:
 _2016- 2019: ‘E.Leclerc Colombes Covadis’_ **Hôtesse de caisse**
+
+
 _Depuis 2019: ‘Auchan Paris La Défense’_ **Hôtesse de la rélation clients**
+
+
 _2021: ‘À Votre Bonheur’, service à la personne, Paris_ **Stage en Assistante RH**
+
+
 _2022: ‘Vida Loca Tattoo’ Saint Maur_ **Hôtesse d’accueil, Pierceuse, Tatoueuse**
 
 # Hobbies
